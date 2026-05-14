@@ -5,4 +5,5 @@ I can sometimes be sarcastic and blunt because i get mad easily but besides that
 
 you can find me in ttte or lego skins
 
+<p align="center">
 <img width="498" height="357" alt="lego-ninjago-lego" src="https://github.com/user-attachments/assets/1a05d665-1927-4c65-b5a2-7d6868f4a148" />
